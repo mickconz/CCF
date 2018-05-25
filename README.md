@@ -1,2 +1,0 @@
-# CCF
-Christ Centered Focus
